@@ -1,4 +1,4 @@
-![Linkedin2](https://github.com/SoftLion-Co/.github/assets/79467842/d61207cd-bf9b-42b8-9977-14c78a9e3834)
+![Linkedin1](https://github.com/SoftLion-Co/.github/assets/79467842/b6ed34e0-42cb-4c8c-9e02-7ede91b11f07)
 
 ## Welcome to SoftLion's GitHub Page! 👋
 
